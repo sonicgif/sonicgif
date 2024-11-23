@@ -26,6 +26,9 @@
 ![ezgif-4-eff21c3212](https://github.com/user-attachments/assets/c0f6c799-9600-409b-9b61-592148dc2f7e)
 ![tumblr_983e4648ee2e070a41cac35df2a2383d_b867466a_100](https://github.com/user-attachments/assets/185e490c-764f-4741-bd06-db1c696a6e70)
 ![ezgif-4-e33a7e12db](https://github.com/user-attachments/assets/c587a0e5-b718-42da-b3e0-4400e0f7b85b)
-
 ![ezgif-4-6825c4ea49](https://github.com/user-attachments/assets/a26c1407-b04a-477c-ab88-88d067e9d3d6)
 ![ezgif-4-e5f0c9a945](https://github.com/user-attachments/assets/ad6bbea9-ef62-452f-8e51-460a5351b7bb)
+![d1c6yj0-bf9bc895-c8fd-4418-9caf-e2ee780bc6d2](https://github.com/user-attachments/assets/cba1aed6-272d-4af1-9e9d-9c5e9ece3d23)
+![d199olw-3b95b82c-94de-41a3-8107-5aa212fddb27](https://github.com/user-attachments/assets/e04038bd-c723-4c67-a0e6-f4ee58a6b070)
+![my_chemical_romance_2_by_morbidpirate_stamps_d1uhwkt-fullview](https://github.com/user-attachments/assets/ad7a66c2-a6b3-45c4-b37c-8e027042a696)
+![tumblr_d396c16c87e516f4741e4ee2c56c1e09_044c4b5a_100](https://github.com/user-attachments/assets/fc1b6cf9-7f11-42a9-8ef1-fbcf242c4c44)
