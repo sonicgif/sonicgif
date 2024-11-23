@@ -32,3 +32,9 @@
 ![d199olw-3b95b82c-94de-41a3-8107-5aa212fddb27](https://github.com/user-attachments/assets/e04038bd-c723-4c67-a0e6-f4ee58a6b070)
 ![my_chemical_romance_2_by_morbidpirate_stamps_d1uhwkt-fullview](https://github.com/user-attachments/assets/ad7a66c2-a6b3-45c4-b37c-8e027042a696)
 ![tumblr_d396c16c87e516f4741e4ee2c56c1e09_044c4b5a_100](https://github.com/user-attachments/assets/fc1b6cf9-7f11-42a9-8ef1-fbcf242c4c44)
+![d2b7wia-ed791d62-3f14-4be2-9c9f-c2babe26bdf1](https://github.com/user-attachments/assets/20d0e2f4-89f0-4339-81df-4c2d4412a36f)
+![got_hats__by_tbearmn22_d21ztbv-fullview](https://github.com/user-attachments/assets/74b21bf0-a3c9-4c06-9cac-3e8d82bddf19)
+![gee_and_frankie_by_steph123098_dz1d99-fullview](https://github.com/user-attachments/assets/de36d384-42f9-489a-adf1-b99087dfeb38)
+![d1witvb-6369308b-2000-4a54-9e21-18057c70f2d4](https://github.com/user-attachments/assets/f497d1da-b679-48c0-8467-ac5829e0da6a)
+![ezgif-4-2a7f48e972](https://github.com/user-attachments/assets/612a1b4b-5f65-47f9-929d-5e537fcddde6)
+
