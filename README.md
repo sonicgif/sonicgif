@@ -1,3 +1,3 @@
 ahnnnnfnh i currecntly like jjba and sonicexe
-only whisper me to interact pleasethanks
+I woud pref if you whisper me to interact pleasethanks
 
