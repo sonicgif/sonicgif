@@ -1,5 +1,9 @@
-[grind](https://toyhou.se/37364192.2011-grind-x) 
 me and mars's son check him out!
+[grind](https://toyhou.se/37364192.2011-grind-x) 
+
+
+PFP BY [BEAN](https://github.com/JerboaNorton)
+
 
 ahnnnnfnh i currecntly like jjba and sonicexe
 
